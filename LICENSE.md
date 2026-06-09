@@ -1,4 +1,4 @@
-#  
+#  Experience brookhaven rp like never before with secret Script for brookhaven rp, the #1 Script. Includes one-hit kill and infinite resources for
 
 
 
